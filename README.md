@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @blendF
-- 👀 I’m interested in Fullstack Web Development.
-- 🌱 I’m currently learning ASP.NET Core MVC
-- 💞️ I’m looking to collaborate on 
+- 👀 I’m interested in Unity.
+- 🌱 I’m currently learning VR development.
+- 💞️ I’m looking to collaborate on: Various Unity projects.
 - 📫 How to reach me: 
 - Facebook/Messenger: Blendi Ferizi
 - LinkedIn: Blendi Ferizi
