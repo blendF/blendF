@@ -1,1 +1,1 @@
-I vibe code the shit out of weekends!
+Lockheed Martin's recent projects include the GeoXO satellite program, Mako™ hypersonic weapon, Next-Generation Interceptor, autonomous Black Hawk tests, GMARS artillery system, GMLRS production in Australia, and CH-53K helicopters for Israel.
